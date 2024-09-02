@@ -1,0 +1,1 @@
+# Analysis-for-Mysellar-Global-Stores.
